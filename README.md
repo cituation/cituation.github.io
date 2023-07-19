@@ -1,2 +1,2 @@
 # cituation.github.io
-lawl
+idk how this shit work bruh
